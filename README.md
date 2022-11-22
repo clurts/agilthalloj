@@ -6,10 +6,6 @@ Hej folkens
 
 Vi skal også snart til frokost!
 
-Hej folkens
-
-Vi skal også snart til frokost!
-
 
 Efter frokost er der øvelser!
 
