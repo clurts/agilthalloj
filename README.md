@@ -7,6 +7,6 @@ Hej folkens
 Vi skal også snart til frokost!
 
 
-
+Efter frokost er der øvelser!
 
 Jeg er sulteeeeeeeeeeeen :)
